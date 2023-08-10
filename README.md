@@ -1,3 +1,5 @@
+GUYS THIS IS SO OUTDATED LIKE PLEASE GO ON UC AND FIND SOMETHING LIKE IS ACTUALLY GOOD FOR YOUR P2C
+
 # Valorant-External
 ! NONE OF THESE FILES WERE CODED / MODIFIED BY ME. I don't want people to believe I could ever code such bad pSource ! 
 Valorant big pasta made by some literally no experience kids who specialize in C+P. Big release. Big pasta.
